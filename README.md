@@ -1,6 +1,6 @@
 # Good day Brother Bosley
 
-# You have been forked by Derrick Reese.
+Good Deal! How was college life?
 
 I hope your day is Alpha Fine.  
 
